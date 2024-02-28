@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1Chik1
+- 👋 Hi, I’m @1Chik1.
 - 👀 I’m interested in eco decor, nature vacations, fire show, Russian herbs, Ayurveda.
 - 🌱 I’m currently learning about myself (soul, emotion), the world around me, interacting with people and sharing experiences.
 - 💞️ I’m looking to collaborate on by people who have an eye for the world. They are in love with it and want to make it better.
